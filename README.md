@@ -310,7 +310,7 @@ Aspiring Data Analyst
 
 GitHub: *(Add your GitHub URL here)*
 
-LinkedIn: *(Add your LinkedIn URL here)*
+LinkedIn: *www.linkedin.com/in/tiaraazahrawikap*
 
 ---
 
